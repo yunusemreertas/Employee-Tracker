@@ -4,7 +4,7 @@
 
 # Video Link
 
-[Walkthrough Video](https://drive.google.com/file/d/1FQ9xv1AWQAApp9LrE6WZO4XscytM2AfP/view)
+https://drive.google.com/file/d/15hQ02hoTboTHeTBCDgeNggHPgyLNonKm/view
 
 ## Description
 
